@@ -4,7 +4,7 @@ The statistics of current generation health is alarming. Eventhough we are the m
 
 Diabetics, Cancer, and other stuff. Let's write down what it is and what are peoples experiences with these, what are the solutions people suggest in various methods of treatment.   
 
-Everyone understands the human system in different ways. What are these different ways of interpretation and models and frameworks that are created and used to treet and keep our system in healthy state?  
+Everyone understands the human system in different ways. What are these different ways of interpretation and models and frameworks that are created and used to treat and keep our system in healthy state?  
 
 Let's explore these systems as well.  
 
